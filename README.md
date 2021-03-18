@@ -1,4 +1,4 @@
-### Hey there, Thanks for stopping by 🙏
+### Hey there, thanks for stopping by 🙏
 
 I'm a Go developer, and I like fried chicken 🍗&nbsp; burritos 🌯&nbsp; LEGO bricks 🧱&nbsp; indoor rowing 🚣&nbsp; and retro games 🕹
 
